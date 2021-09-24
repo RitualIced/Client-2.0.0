@@ -1,0 +1,1 @@
+Hello, this client has no malware or any type of "rat". Ive checked it multiple times and its perfectly fine. Also stop crying in my dms 
